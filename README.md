@@ -23,7 +23,7 @@ We’re always open to working on exciting projects. If you're ready to take you
 - 📞 Phone: +880 1963-212561  
 - 🌐 Social Media:  
   - [Facebook](https://www.facebook.com/profile.php?id=61565789643509)  
-  - [LinkedIn](https://www.linkedin.com/in/monkey-designers-agency-5a81ba329/)  
+  - [LinkedIn](https://www.linkedin.com/company/monkey-designers-agency-io.)
   - [Instagram](https://www.instagram.com/monkey_designers.agency/profilecard/?igsh=MTBkbWF6MnQ5dnF0Yw%3D%3D)
 
 ---
